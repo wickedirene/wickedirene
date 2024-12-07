@@ -6,7 +6,7 @@
 
 🌊⠀𐔌⠀I love talking and being on disc , ponytown , etc ⠀⊰ I'm not online that much cus busy w school n stuff, I'm semi-afk in games either studying irl or doing smthn 
 
-🌊⠀𐔌⠀basic dni , proships/lesboys/, welcomehome, helluva and hazbin⠀⊰ white/blackwashing believers, homophobes, racists, bodyshamers, transphobes, pedos n zoos
+🌊⠀𐔌⠀basic dni , proships/lesboys/, welcomehome, helluva and hazbin⠀⊰ white/blackwashing believers, homophobes, racists,pedos n zoos n etc
 
 🌊⠀𐔌⠀pls pls INT w me I promise I don't bite ⠀⊰ let's be green names :3
 
