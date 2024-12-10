@@ -1,7 +1,7 @@
 ![download (7)](https://github.com/user-attachments/assets/f8fc7fe4-5675-4807-939f-e0dc5f391cae)
 
 
-ノ ![tumblr_c6a8bec39ee8ac288c3f7cfdcaec6e79_bc3b042e_75](https://github.com/user-attachments/assets/0a871373-1b21-4a69-8116-f8a8637bee36)
+ノ![FE88EE1E-F445-4966-A7D3-F22C4954ECF1](https://github.com/user-attachments/assets/4dbcdfda-06bb-4288-a362-142cf1b016ef)
 ⠀𐔌⠀hello I'm irene or taco ! • 
 
 ![tumblr_c6a8bec39ee8ac288c3f7cfdcaec6e79_bc3b042e_75](https://github.com/user-attachments/assets/0a871373-1b21-4a69-8116-f8a8637bee36)
