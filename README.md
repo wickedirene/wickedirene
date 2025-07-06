@@ -1,19 +1,23 @@
-![1000014553](https://github.com/user-attachments/assets/b8266ccb-1f26-4112-a492-de74abc3500f)
+![1000019085](https://github.com/user-attachments/assets/c1285c76-498a-4f2d-9cbf-68d2b99d44af)
+![1000019089](https://github.com/user-attachments/assets/b3f385d9-dea8-44bd-887b-88e545410bd9)
 
 
 
 
-🌿 ` 𐔌 hey there weirdo ! I go by irene or either karma, yes. it's a silly name I know but you can also call me other names, or nicknames! I don't mind even if it doesn't relate to my actual name.
+
+🩵 ` 𐔌 heyooo!!:3 I am hiroshi or u can call me irene..heh!.. I don't mind being called by any other names, even characters  !! I don't mind at all, so get creative:p
 
 
-⭐️ ` 𐔌 general information,  I am a female and I am straight:3 becauseof my religion, as I'm also an artist I love listening to music and I don't act like my age ! /not meant to be in a /neg way
+🐦‍⬛ ` 𐔌 general information,, I am a female, but bigender and aroace !! I have bad memory and really talkative, I have low attention span :3 js be aware I can be self centered sumtimes so I'm sorry:(  I'm asian and filipino btwwwww :3
 
 
-🐱 ` 𐔌 idgaf what age u are, js pls don't be sensitive about me and my friend(s) humor !! I'm willing to int w any age 
+🐟 ` 𐔌 idgaf what age you are, or whatever interest you have! I genuinely just want people who keeps up with me and matches myfreak and humor !! I love friends that are listeners and yappers at the same time ackkkkkk
 
 
-💫 ` 𐔌 I love being on ponytown, and u can find me near the markets or at spawn, at hills. or either docks ! PLSS interact  I do NOT bite and I'm willing to interact bc I'm lonely as shit
+🤎🖤 ` 𐔌 I am always everywhere on the map, but I'm mostly at the starting area and also at docks..you can c+h with me and I don't mind at all, I don't mind whispers and crowns !! feel free to interact with me and talk>_<
 
-🌻 ` 𐔌 fandoms I'm in are currently  genshin impact ,, honkai star rail ,, southpark ,, cherrycrush ,, and jujutsu kaisen !!  I'm willing to join other fandoms n learn abt them
+🪼 ` 𐔌 fnadoms I love and drool over are haikyuu dandys world southpark orv and my main fandom atm is haikyuu (season 3....... but my kinnies are mostly yachi, bokuto, yamaguchi, astro n looey glisten, craig , till and aventurine..and I love Kim dokja and uriel !!
 
-![1000014552](https://github.com/user-attachments/assets/295dfe4f-4320-4d9c-9d22-32fac1fff0c2)
+![1000019107](https://github.com/user-attachments/assets/662109eb-63ec-4aeb-8c3e-3e958e6ca033)
+![1000019085](https://github.com/user-attachments/assets/992089b4-92ce-48b2-bace-65d608a2b308)
+
