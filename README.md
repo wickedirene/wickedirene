@@ -8,7 +8,7 @@
 🩵 ` 𐔌 heyooo!!:3 I am hiroshi/reverie or u can call me irene..heh!.. I don't mind being called by any other names, even characters  !! I don't mind at all, so get creative:p (kageyamababyyy.co is me btw... it's my old graphics !!!
 
 
-🐦‍⬛ ` 𐔌 general information,, im bigender,aroace & lesbian !! I have bad memory and really talkative, I have low attention span :3 js be aware I can be self centered sumtimes so I'm sorry, plz do talk to me because I'm trying my best 2 improve !!
+🐦‍⬛ ` 𐔌 general information,, im bigender,pansexual !! I have bad memory and really talkative, I have low attention span :3 js be aware I can be self centered sumtimes so I'm sorry, plz do talk to me because I'm trying my best 2 improve !!
 
 
 🐟 ` 𐔌 idgaf what age you are, or whatever interest you have! I genuinely just want people who keeps up with me and matches myfreak and humor ! but I still do have dni page^_^
