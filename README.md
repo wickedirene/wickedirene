@@ -1,9 +1,10 @@
 <img width="740" height="552" alt="1000022341" src="https://github.com/user-attachments/assets/530d1894-9ba9-435e-931e-0264aad7d47f" />
 ୧ 🏐 — 💜 note: "you are not allowed not entitled to copy my cosplays or skins in ponytown or anywhere in general. please ask before taking inspo. it takes a lot of time to make my cosplays/skins."
 
+
 ୧ 🏐 — 💜 "Someone even better will come and find you."
 
-⊰ ⌗ 💜 : HI HELLO!! my name is irene, or you can call me tobio. im currently Apagender & Pansexual, I am comfortable with whatever pronouns and terms you call me!  I'm a minor so be aware. I'm quite talkative and an extrovert :3 
+⊰ ⌗ 💜 : HI HELLO!! my name is vivi, or you can call me tobio. im currently Apagender & Pansexual, I am comfortable with whatever pronouns and terms you call me!  I'm a minor so be aware. I'm quite talkative and an extrovert :3 
 
 ⊰ ⌗ 🏐 : idgaf about what age you are, unless its 20+ and 11 under. but overrall just please be mature and careful with words you say, I don't mind any fandom interacting unless its in my DNI list! 
 
