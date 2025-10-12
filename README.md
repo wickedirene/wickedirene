@@ -1,4 +1,5 @@
-<img width="740" height="552" alt="1000022341" src="https://github.com/user-attachments/assets/530d1894-9ba9-435e-931e-0264aad7d47f" />
+<img width="740" height="640" alt="1000022812" src="https://github.com/user-attachments/assets/8219f3f8-1eec-4227-bd07-08f77d8d3bc8" />
+
 ୧ ⚔️ — 🥚 note: "you are not allowed not entitled to copy my cosplays or skins in ponytown or anywhere in general. please ask before taking inspo. it takes a lot of time to make my cosplays/skins."
 
 
@@ -12,4 +13,5 @@
 
 ⊰ ⌗ 🥚 : Ponytown information: Please don't be scared to interact, I swear I'm nice.. ╥﹏╥ I don't mind C+H as it's open to everyone, Whispers are encouraged because I tend to go afk alot. PLEASE DON'T BE AFRAID TO COMPLIMENT ME OR CROWN ME I swear I will kick my feet:3 ,, I don't mind inspiration off my cosplays but please don't copy. I wont hesitate to block + hide you^_^ 
 
-<img width="740" height="552" alt="1000022340" src="https://github.com/user-attachments/assets/0475b970-a643-4076-9f33-b2c81c3fa211" />
+
+<img width="740" height="208" alt="1000022808" src="https://github.com/user-attachments/assets/0c99e649-9fa1-40fb-bdc1-1fb9f48b5680" />
