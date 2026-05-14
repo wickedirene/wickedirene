@@ -1,17 +1,17 @@
-<img width="740" height="640" alt="1000022812" src="https://github.com/user-attachments/assets/8219f3f8-1eec-4227-bd07-08f77d8d3bc8" />
-
-୧ ⚔️ — 🥚 note: "you are not allowed not entitled to copy my cosplays or skins in ponytown or anywhere in general. please ask before taking inspo. it takes a lot of time to make my cosplays/skins."
+<img width="2048" height="1654" alt="170" src="https://github.com/user-attachments/assets/cde7df85-2c02-4efd-9de4-c17c02abe7bf" />
 
 
-୧ ⚔️ — 🥚 "Stop runnin around and look at me in my singular eyeball."
-
-⊰ ⌗ 🥚 : HI HELLO!! my name is vivi, or you can call me EGGCHAN!!. im currently Apagender & bisexual, I am comfortable with whatever pronouns and terms you call me!  I'm a minor so be aware. I'm quite talkative and an extrovert :3 
-
-⊰ ⌗ 🥚 : idgaf about what age you are, unless its 20+ and 11 under. but overrall just please be mature and careful with words you say, I don't mind any fandom interacting unless its in my DNI list! 
-
-⊰ ⌗ 🥚 : More information, I love kageyama tobio from Haikyuu, hes my king #1, and eggchan from unstable !! My current fandoms are: Haikyuu, Regrevator, MLBB, Dandys world, Genshin Impact & Honkai Star Rail, Omniscient Readers Viewpoint, MLP, South park, Cooke Run Kingdom, Alien stage, Squid Game, Unstable & Lifesteal and many other moreeee >u<
-
-⊰ ⌗ 🥚 : Ponytown information: Please don't be scared to interact, I swear I'm nice.. ╥﹏╥ I don't mind C+H as it's open to everyone, Whispers are encouraged because I tend to go afk alot. PLEASE DON'T BE AFRAID TO COMPLIMENT ME OR CROWN ME I swear I will kick my feet:3 ,, I don't mind inspiration off my cosplays but please don't copy. I wont hesitate to block + hide you^_^ 
+୧ ⚔️ — 🌹 Hello !! it's Mapicc, Just a small note that i dont appreciate people copying my skins whatsoever, if you want inspiration then please dont be afraid to whisper me!  Just dont copy my skins, as i put alot of effort into those skins.
 
 
-<img width="740" height="208" alt="1000022808" src="https://github.com/user-attachments/assets/0c99e649-9fa1-40fb-bdc1-1fb9f48b5680" />
+୧ ⚔️ — 🌹 "Oh look! The infamous chestplate is gone!"
+
+⊰ ⌗ 🌹 : HELLO HIIII! My name is Avery or You can call me Mapicc, i dont mind whatever name you use to call me!! I am 13 years old, and im really talkative once you get to know me! i tend to be semi afk alot and dont go online much
+
+⊰ ⌗ 🌹 : i dont gaf whatever age you are, but please be aware of basic dni and also i dont mind blocking or unfriending people if i dont like their attitude or either your just being a mean person. please understand that i cant play with you everyday, or cant message you everyday since i have a life outside of the internet.
+
+⊰ ⌗ 🌹 : I am in multiple fandoms, so i love meeting people with the same fandoms as me!! it feels so good to see them, and i am a extrovert! You'll get to know me alot mote once you become one of my mooties!
+
+⊰ ⌗ 🌹 : Ponytown information: Dont be afraid to interact with me, i am not gonna bite whatsoever and at the same time im desperate for friends like hello ｡⁠•́⁠︿⁠•̀⁠｡ but then again, c + h is always open! i tend to be semi afk alot, so responses are slow. Anyway, Thankyou for reading and i hope you have a wonderful day!
+
+<img width="2048" height="1654" alt="169" src="https://github.com/user-attachments/assets/97a09b13-34ee-4050-95ec-806608b97e3d" />
