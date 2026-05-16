@@ -6,7 +6,7 @@
 
 ୧ ⚔️ — 🌹 "Oh look! The infamous chestplate is gone!"
 
-⊰ ⌗ 🌹 : HELLO HIIII! My name is Avery or You can call me Mapicc, i dont mind whatever name you use to call me!! I am 13 years old, and im really talkative once you get to know me! i tend to be semi afk alot and dont go online much
+⊰ ⌗ 🌹 : HELLO HIIII! My name is Avery or You can call me Mapicc, i dont mind whatever name you use to call me!! I am a minor, and im really talkative once you get to know me! i tend to be semi afk alot and dont go online much
 
 ⊰ ⌗ 🌹 : i dont gaf whatever age you are, but please be aware of basic dni and also i dont mind blocking or unfriending people if i dont like their attitude or either your just being a mean person. please understand that i cant play with you everyday, or cant message you everyday since i have a life outside of the internet.
 
