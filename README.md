@@ -3,6 +3,12 @@
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B6F73F&center=true&vCenter=true&width=435&lines=avery+da+goat)](https://git.io/typing-svg)
   <img width="1000" height="64" alt="2051" src="https://github.com/user-attachments/assets/85d6235b-6ddb-4ad0-8bf0-773aeb34910d" />
-  [atabook](https://wickedirene.atabook.org/) $${\color{lightgreen}— \space}$$ [discord](https://guns.lol/averydagoatt) $${\color{lightgreen}— \space}$$
+<p align="center">
+  <a href="https://wickedirene.atabook.org/">atabook</a>
+  $${\color{lightgreen}— \space}$$
+  <a href="https://guns.lol/averydagoatt">discord</a>
+  $${\color{lightgreen}— \space}$$
+</p>
+
 
 
