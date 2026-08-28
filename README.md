@@ -4,11 +4,17 @@
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B6F73F&center=true&vCenter=true&width=435&lines=avery+da+goat)](https://git.io/typing-svg)
   <img width="1000" height="64" alt="2051" src="https://github.com/user-attachments/assets/85d6235b-6ddb-4ad0-8bf0-773aeb34910d" />
 <p align="center">
-  <a href="https://wickedirene.atabook.org/">atabook</a>
+  <a 
+ href="https://wickedirene.atabook.org/">atabook</a>
   $${\color{lightgreen}— \space}$$
   <a href="https://guns.lol/averydagoatt">discord</a>
-  $${\color{lightgreen}— \space}$$
-</p>
-
-
-
+<div align="center">
+  
+<p align=“left”>
+<p align=“left”>
+<p align=“left”>
+$\color{#ceebae}{\textsf{wait!}}$ $\color{#b5e67e}{\textsf{you want}}$ $\color{#a7e065}{\textsf{to know}}$ $\color{#8ab545}{\textsf{more}}$
+$\color{#698f2c}{\textsf{about}}$
+$\color{#4b800a}{\textsf{me?}}$ </p>
+<p align=“left”> 
+<div align="center">
