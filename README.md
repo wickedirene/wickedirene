@@ -1,13 +1,15 @@
-<img width="1280" height="374" alt="2048" src="https://github.com/user-attachments/assets/b6cde380-6998-4a3d-bfe4-8c1e3686a88a" />
-<img width="736" height="736" alt="2050" src="https://github.com/user-attachments/assets/1e800c6c-8886-4df8-bdfa-34becf4ceb07" />
+<img width="400" height="212" alt="2255" src="https://github.com/user-attachments/assets/0e8fbadf-e5f7-4ee2-b06b-d816bfece7a2" />
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B6F73F&center=true&vCenter=true&width=435&lines=avery+da+goat)](https://git.io/typing-svg)
-  <img width="1000" height="64" alt="2051" src="https://github.com/user-attachments/assets/85d6235b-6ddb-4ad0-8bf0-773aeb34910d" />
+<img width="500" height="500" alt="2254" src="https://github.com/user-attachments/assets/ea4d4185-75fd-424c-a118-fd2e9abaef73" />
+
+
 <p align="center">
   <a 
  href="https://wickedirene.atabook.org/">atabook</a>
   $${\color{lightgreen}— \space}$$
   <a href="https://guns.lol/averydagoatt">discord</a>
+  <img width="1000" height="64" alt="2256" src="https://github.com/user-attachments/assets/28d1be99-0cae-4e3f-b686-553ab19e333e" />
+
 <div align="center">
   
 <p align=“left”>
@@ -18,3 +20,4 @@ $\color{#698f2c}{\textsf{about}}$
 $\color{#4b800a}{\textsf{me?}}$ </p>
 <p align=“left”> 
 <div align="center">
+<img width="736" height="414" alt="2252" src="https://github.com/user-attachments/assets/9251b97c-ee1a-4ebb-a2c1-8a0a8b53fbae" />
